@@ -19,5 +19,5 @@ Apaixonado por tecnologia e por dar vida a sonhos e projetos através da program
 
 ## Formas de contato:
 
-[Email](andresebastian056@gmail.com)<br/>
+[Email: andresebastian056@gmail.com](andresebastian056@gmail.com)<br/>
 [WhatsApp: (79) 9 9816-3788](79998163788)
